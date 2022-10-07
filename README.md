@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Harshit Pandey
-- 👀 I’m interested in Problem solving, Android
+- 👀 I’m interested in Android
 - 🌱 I’m currently learning Blockchain
 - 📫 How to reach me harshitpandey902@gmail.com
 
