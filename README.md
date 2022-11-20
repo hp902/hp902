@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **harshitpandey902@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1-7-I-sqgT0W1ZUKelrZGxCgSJ_Z5KYNm/view?usp=share_link](https://drive.google.com/file/d/1-7-I-sqgT0W1ZUKelrZGxCgSJ_Z5KYNm/view?usp=share_link)
+- 📄 Know about my experiences [HERE](https://drive.google.com/file/d/1-7-I-sqgT0W1ZUKelrZGxCgSJ_Z5KYNm/view?usp=share_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
